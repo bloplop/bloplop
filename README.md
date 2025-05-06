@@ -5,7 +5,8 @@ i'm in a lot of fandoms (mostly anime and music) i'm pretty shy but feel free to
 
 one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr fun games damn it
 
-![spare-the-symptahy-jerma](https://github.com/user-attachments/assets/4a0058b4-2492-4357-aac2-c25de3214ad4)
+![spare-the-symptahy-jerma](https://github.com/user-attachments/assets/4a0058b4-2492-4357-aac2-c25de3214ad4) ![21fbeb7dc2f681d8bcb1e7c13149e702](https://github.com/user-attachments/assets/912ca9d9-34ac-403b-b5ff-bfc1744e878a)
+
 
 
 
