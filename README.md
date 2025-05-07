@@ -7,6 +7,7 @@ one last thing to mention is that i actually think this game sucks but idk what 
 
 ![spare-the-symptahy-jerma](https://github.com/user-attachments/assets/4a0058b4-2492-4357-aac2-c25de3214ad4) 
 
+![609aeb4d](https://github.com/user-attachments/assets/560bf14e-a335-41f1-bf8b-c3526b7e3a72)
 
 
 <!--
